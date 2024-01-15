@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Arity-jpg, also known as Alice
+- 👀 I’m interested in art, philosophy, IT and economics
+- 🌱 I’m currently learning about databases
+- ⚡ Fun fact: Professor Schuster is the best teacher.
